@@ -84,6 +84,16 @@
             <li>Violette Wautier (วี วิโอเลต วอเทียร์) - <a href="https://www.instagram.com/violettewautier/" rel="nofollow">violettewautier</a> :fire:</li>
             <li>whan.p - <a href="https://www.instagram.com/whan.p/" rel="nofollow">whan.p</a></li>
             <li>∞ - <a href="https://www.instagram.com/bellesnvl/" rel="nofollow">bellesnvl</a></li>
+            <li>Davika Hoorne - <a href="https://www.instagram.com/davikah/" rel="nofollow">davikah</a> :fire::fire::fire::fire:</li>
+            <li>Engfa Waraha - <a href="https://www.instagram.com/fa_engfa8/" rel="nofollow">fa_engfa8</a> :fire::fire::fire:</li>
+            <li>Milk Pansa Vosbein - <a href="https://www.instagram.com/panly.v/" rel="nofollow">panly.v</a> :fire:</li>
+            <li>Love Pattranite - <a href="https://www.instagram.com/loverrukk/" rel="nofollow">loverrukk</a> :fire::fire::fire:</li>
+            <li>Kanticha Chumma (Ticha) - <a href="https://www.instagram.com/kantichachumma/" rel="nofollow">kantichachumma</a> :fire::fire:</li>
+            <li>Ruby PCN - <a href="https://www.instagram.com/rubyy.pcn/" rel="nofollow">rubyy.pcn</a></li>
+            <li>Punnyaaphat Thanhomkul - <a href="https://www.instagram.com/punnyaaphat/" rel="nofollow">punnyaaphat</a></li>
+            <li>Jenny Chumma - <a href="https://www.instagram.com/jennychumma/" rel="nofollow">jennychumma</a> :fire:</li>
+            <li>Papada Tantasatityanond - <a href="https://www.instagram.com/carrot_papada/" rel="nofollow">carrot_papada</a> :fire:</li>
+            <li>Thankyou - <a href="https://www.instagram.com/thankyoutyty/" rel="nofollow">thankyoutyty</a> :fire:</li>
         </ul>
         <h2>Chulalongkorn University</h2>
         <p><em>Number one undergrad school in the country, same to girls who are going there</em></p>
