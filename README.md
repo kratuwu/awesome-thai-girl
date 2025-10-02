@@ -185,6 +185,7 @@
             <li>LOOGMAI 'KAMOLCHANOK' - <a href="https://www.instagram.com/loogmy/" rel="nofollow">loogmy</a></li>
             <li>Pantipa Arunwattanachai - <a href="https://www.instagram.com/pantipa.a/" rel="nofollow">pantipa.a</a>, <a href="https://www.facebook.com/Pui.pantipa" rel="nofollow">Pantipa</a> :sweat_drops::cupid::fire:</li>
             <li>Pariya Tippalert - <a href="https://www.instagram.com/mmmmemo/" rel="nofollow">mmmmemo</a></li>
+            <li>punch.jpeg - <a href="https://www.instagram.com/k1tchyq" rel="nofollow">k1tchyq</a> :fire: :fire:</li>
         </ul>
         <h2>High School</h2>
         <p><em>"The world is moving too fast, or we're growing too slow" - bachkukkik</em></p>
