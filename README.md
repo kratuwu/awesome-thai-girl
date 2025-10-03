@@ -123,6 +123,7 @@
             <li>Nuttha L. - <a href="https://www.instagram.com/baminaaa/" rel="nofollow">baminaaa</a></li>
             <li>Padpudd Rathfar - <a href="https://www.instagram.com/padpudd/" rel="nofollow">padpudd</a> :fire:</li>
             <li>PAIR Radkloud J. - <a href="https://www.instagram.com/pairadkloud/" rel="nofollow">pairadkloud</a> :fire:</li>
+            <li>Pang Chanissa - <a href="https://www.instagram.com/ppangchn/" rel="nofollow">ppangchn</a> :fire:</li>
             <li>Peerada T. - <a href="https://www.instagram.com/pimpyrada/" rel="nofollow">pimpyrada</a></li>
             <li>Ping Aphantree Teerachutporn - <a href="https://www.instagram.com/pingpng/" rel="nofollow">pingpng</a></li>
             <li>poppinn - <a href="https://www.instagram.com/poppinn/" rel="nofollow">poppinn</a></li>
