@@ -94,6 +94,7 @@
             <li>Jenny Chumma - <a href="https://www.instagram.com/jennychumma/" rel="nofollow">jennychumma</a> :fire:</li>
             <li>Papada Tantasatityanond - <a href="https://www.instagram.com/carrot_papada/" rel="nofollow">carrot_papada</a> :fire:</li>
             <li>Thankyou - <a href="https://www.instagram.com/thankyoutyty/" rel="nofollow">thankyoutyty</a> :fire:</li>
+			<li>Kaew Jarinya S. - <a href="https://www.instagram.com/kaewjarin/" rel="nofollow">kaewjarin</a> :fire::fire:</li>
         </ul>
         <h2>Chulalongkorn University</h2>
         <p><em>Number one undergrad school in the country, same to girls who are going there</em></p>
